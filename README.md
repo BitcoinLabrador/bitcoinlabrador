@@ -1,3 +1,3 @@
-### BitcoinLabrador - the coolest dog of bitcoin class 2020
+### Digital Swiss Army Service Dog™ @ http://PeachBitcoin.com, Shift Crypto, AMDAX
 
-Interaction & UX designer, always looking to learn more about bitcoin.
+Does translations, design, copy and whatever else for some treats or a bone.
